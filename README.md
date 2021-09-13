@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @sobankhan1
+- 👀 I’m expert in creating 7 figure shopify dropshipping store.
+- 🌱 I’m currently learning C4D.
+- 💞️ I’m looking to collaborate with people whowant my services.
+- 📫 You can reach me through mail: expertinshopify@gmail.com
+---> Looking forward to work with you.
